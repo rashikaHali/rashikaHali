@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Rashika Hali
+- 📫 Reach me at halirashika@gmail.com
